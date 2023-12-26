@@ -1,5 +1,5 @@
 ### Hi there 👋
-as yall know, there's noo way may name is Onigiri. Okay, may real name is Fariz Ahmad Fadillah, and im from Indonesia.
+as yall know, there's noo way my name is Onigiri. Okay okay, my real name is Fariz Ahmad Fadillah, and im from Indonesia.
 Iam currently studying, majoring in informatics engineering.
 
 - 🔭 I’m currently working on UAS :)
